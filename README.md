@@ -1,2 +1,1 @@
-# dreampharmacy-whatsapp-ecom
-https://mizaaaan.github.io/dreampharmacy-whatsapp-ecom/
+https://mizanqat.github.io/najm/
